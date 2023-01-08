@@ -1,1 +1,1 @@
-- hello, i'm onrdmn aka astatum. i usually translate softwares that i like to use.
+bruh
